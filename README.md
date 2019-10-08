@@ -1,3 +1,2 @@
 # badungimut
 Badungimut
-Luculu ah
